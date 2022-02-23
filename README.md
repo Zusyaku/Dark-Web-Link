@@ -227,6 +227,276 @@ http://wclekwrf2aclunlmuikf2bopusjfv66jlhwtgbiycy5nw524r6ngioid.onion/link/socha
 http://wclekwrf2aclunlmuikf2bopusjfv66jlhwtgbiycy5nw524r6ngioid.onion/link/blockchair/
 
 
+
+
+
+Deep Links Dump
+http://t3g5mz7kgivhgzua64vxmu7ieyyoyzgd423itqjortjhh64lcvspyayd.onion/
+Category: Catalogue
+
+///////////
+Uncensored deep web links directory
+\\\\\\\\\\\
+
+https://bluescriptpharmacyllc.com/product/vip-acet
+https://bluescriptpharmacyllc.com/product/vip-acetone-washed-pink-cocaine-for-sale/
+Category: News
+
+///////////
+Vip Acetone Wased Pink Cocaine For Sale
+\\\\\\\\\\\
+
+Covid19 Pass / Vaccination QR Code
+http://popbuy7kjb5fly6my225njaddnf7kvvtako5xmvfl446dny2gn2mksqd.onion/?product=covid-vaccination-cer
+Category: Catalogue
+
+///////////
+Covid19 Pass / Vaccination QR Code
+\\\\\\\\\\\
+
+Covid19 Vaccination record card
+http://fugaijr6sx4eo3siplh44qkp5foav6eu3vv2bzztxanzu3ko74wcx3ad.onion/
+Category: Catalogue
+
+///////////
+Buy real covid 19 vaccination card
+\\\\\\\\\\\
+
+SkimmerRU
+http://j4pfa5nn7fxnvh4cgfysh4an6efk66qsh2ptlmguxl2qea5k7ulqllqd.onion
+Category: Hacking
+
+///////////
+SkimmerRU Deep Web Skimming Union!
+\\\\\\\\\\\
+
+Regal Ammunition-order Handguns,AR-15 Rifles,Revol
+http://e7yn4ynopuj3lrxxwmmm6o552j5a7t3zyxy7eorsj37gvpnbou53fyyd.onion
+Category: Guns
+
+///////////
+Order Handguns,AR-15 Rifles,Revolver,1911 Pistols.
+\\\\\\\\\\\
+
+Light Money – Covid Pass QR Code PayPal Western Un
+http://icwxlcfgi7o42dnanqkvbogzo5t235nuaefo27cuxqfstcpk3uhwfdad.onion/#covid
+Category: Money Transfers
+
+///////////
+Light Money – Covid Pass QR Code PayPal Western Union
+\\\\\\\\\\\
+
+Versus marketplace
+http://pqqmr3pzptr6stuyfdrnjw2ye5fdc5yt4p3xgoz2bwxpe324q25yyaid.onion
+Category: Drugs
+
+///////////
+Versus marketplace
+\\\\\\\\\\\
+
+THE DARK MARKET
+http://n7twnuyojlnhqzt2o3ovq7qmtuj36gcs2brju77neu64xwi5db2s3hyd.onion/
+Category: Marketplace
+
+///////////
+A secure and anonymous marketplace with Multisig Escrow System.
+\\\\\\\\\\\
+
+Spark Ammunition-:Guns,AR-15 Rifles,Revolver,1911
+http://sufju6lln2g34vcj3jv2bshmgyzqduyal4lof4l2l6co6ktdcbmcerqd.onion
+Category: Guns
+
+///////////
+order Handguns,AR-15 Rifles,Revolver,1911 Pistols,Bolt Action Rifles
+\\\\\\\\\\\
+
+General Tor Links
+http://fqr7fd4dmwxwpxn2355tnnj37x2hroxc2mr7uty4pwdflpt2bnbdiyqd.onion/
+Category: Catalogue
+
+///////////
+Here your journey through the deep web begins
+\\\\\\\\\\\
+
+Trust Wallet Hack
+http://trustwxowk5ckfthotdbnffwg5yyodlmldmctfm3uwmfrtob5pnwwjid.onion/
+Category: Cryptocurrency
+
+///////////
+More Trust Wallet Available
+\\\\\\\\\\\
+
+Express Documents:Buy Passports,Driver’s License.
+http://t6bitngq2lk45vwvy45zluwne4dzq4qhdybgztrdkho5xpkuru644fqd.onion
+Category: Counterfeits
+
+///////////
+Express Documents:Buy Passports,Driver’s License.ID Cards,Birth Certificates,Diplomas,
+\\\\\\\\\\\
+
+BTC Wallet Market
+http://ka65rzgxxozlosssleyytvlxylxgyb7bdrqefq7do6s6fvomvndd4sqd.onion/
+Category: Marketplace
+
+///////////
+Welcome to the BTC Wallet Market.
+\\\\\\\\\\\
+
+bob
+http://bobsdksacvfsihjunxknibzfbgkkgohgrhugmtuvhaoausgayxbtovyd.onion/
+Category: Forum
+
+///////////
+Darknet Private Forum
+\\\\\\\\\\\
+
+Death Knell Hitman Syndicate
+http://deathkuhexyfkusytdqpxkrbl4ipri7ec4qgcaxg7a3j3twdovlouvid.onion
+Category: Hitman
+
+///////////
+Hitmen for Hire Service
+\\\\\\\\\\\
+
+FAUX MONNAIE
+http://www.oe2gfib2lea5lengv7pvnsdxvf4gvz3bfiglpvkhbs2i7o3a52jodwid.onion
+Category: Counterfeits
+
+///////////
+it would have not fair talking about what to buy , how to buy and when to buy without talking about how to and what to u
+\\\\\\\\\\\
+
+GUNS AND ARMS FOR SALE
+http://www.jx4lzyctp4h6yyj4bc2qemm3ce4ssxo3ftsu3ajhzdc2tipzz4gpe5id.onion/product-category/guns/
+Category: Catalogue
+
+///////////
+updated and old collections of ammunitions
+\\\\\\\\\\\
+
+PSYCHEDELICS
+http://www.dhfk22hkwwn27obpsz22uhdyeu42b5wlkn4jlrelh75a2cgfoshkj6id.onion/
+Category: Drugs
+
+///////////
+its funny how the hallucinating effect of psychedelic products can have us experience things beyond physical understandi
+\\\\\\\\\\\
+
+Registration Anonymous
+http://7ipmsg4ym4izwpnbqj3ntbzqvsn56wuzvv3axunf6xsdvarqa7glfeyd.onion
+Category: Other
+
+///////////
+Give your hyip/btc investment site a boost with Google Business &other benefits. Tap in. @registanon on Telegram, regist
+\\\\\\\\\\\
+
+Intel buyer
+http://iamjesse2d5rgdt4d4vtlchzfrqftz7wyx2bf3jvsbjfacvinxfsspad.onion
+Category: Catalogue
+
+///////////
+Info for BTC
+\\\\\\\\\\\
+
+Old New Money
+http://fpuvvtc3dmtgcfhpivdtim72lptjaugrowy43h6oxsndrzpyxlmoisid.onion/
+Category: Counterfeits
+
+///////////
+Pre-shred and counterfeit USD $$$, EUR €€€, GBP £££.
+\\\\\\\\\\\
+
+Guns – Innoxius Tabernam
+http://innoxnxnihwnd52wlhojo6nne4goad7u7a2qixs7g3hrxkmgkyvviuad.onion/
+Category: Guns
+
+///////////
+Guns – Quality
+\\\\\\\\\\\
+
+Hidden PayPal
+http://jmjkshd3dowb46vo6n7ssxlyjwhea3np55swlxazjpwr3mpxdgjfwgqd.onion/
+Category: PayPal
+
+///////////
+Your best DarkWeb source
+\\\\\\\\\\\
+
+documents shop
+http://www.tvex4go2nh6n4hiwbm4hgq6fp6oujuytkx4ow7c7ysnquwyqhj3qshqd.onion
+Category: Marketplace
+
+///////////
+Looking for we to order all documents but undetectable like Passports and Fake covid cards
+\\\\\\\\\\\
+
+fake documents shop
+http://tvex4go2nh6n4hiwbm4hgq6fp6oujuytkx4ow7c7ysnquwyqhj3qshqd.onion
+Category: Search Engine
+
+///////////
+Looking for we to order all documents but undetectable like Passports and Fake covid cards
+\\\\\\\\\\\
+
+TOR SCAM LIST
+http://jt3it42syepkpcplixdxcnv2vz53cpk27lek2pptqlgrnqyb7cuqojqd.onion
+Category: Catalogue
+
+///////////
+TOR SCAM LIST
+\\\\\\\\\\\
+
+Lotto – Participate for low as 0.001 BTC!!!
+http://x3kfufvlih7diia5fjoj3whbjhfmjnyhlxrxmhx2as2yvkatqxzkyfyd.onion/
+Category: Catalogue
+
+///////////
+Lotto – Participate for low as 0.001 BTC!!!
+\\\\\\\\\\\
+
+Bitcoin Private Key Shop
+http://btcwxfgeyhsb4ng6p7dhz65todetcvp66nohcgw4spwjsaibocw4duad.onion
+Category: Cryptocurrency
+
+///////////
+Buy Bitcoin Addresses With Balance And Private Key
+\\\\\\\\\\\
+
+BITCOIN X200
+http://3vujy4sxddg27puq5dwvbgnjmstbcemksl7rmsrhzdyat55n6q726xad.onion
+Category: Catalogue
+
+///////////
+[OFFICIAL AND ORIGINAL] BITCOIN x200 SERVICE – 2022
+\\\\\\\\\\\
+
+SWEDISH BITCOIN MULTIPLIER
+http://a744bceasgyfm6yn23o5rbtbubbekrnqz7bxawgtfxdgmighmpevxnad.onion/
+Category: Cryptocurrency
+
+///////////
+!!! MULTIPLY NOW !!!
+\\\\\\\\\\\
+
+BTCPURCE
+http://4f56dbv33j4meld3s5tnuzu5sapjzc2a5mmn2rwpgzsiwum6kvn7kcad.onion/
+Category: Money Transfers
+
+///////////
+Stolen wallets are available for your use, waiting for you!
+\\\\\\\\\\\
+
+Royal Class Cards
+http://hayj6nvcbxtprehntlie67kgjgds7dcl5qdp4zyvca5akf767u5orryd.onion/
+Category: Carding
+
+///////////
+Royal Class Credit Cards. VISA Balance, Mastercard, WesternUnion
+\\\\\\\\\\\
+
+
+
+
 Western District
 http://v4t3ogtrdoe6ozkn.onion/
 
