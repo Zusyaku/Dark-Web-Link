@@ -180,13 +180,7 @@ https://darkweblinks.com/
 https://thehiddenwiki.com/
 
 http://worldgyonnnlgg332jwgjxvj2dojerz2hh65ce44h56howcfmpehupad.onion/login
-voltarox oTRsecLxU47N5En8DChVArywt1ZuaSOdH9gimk3G6Bq2fpjQbvWPM0zIlYXF
-cXRG5FsqdN4RCKT
-
 http://f3dxwzcmojrlphehqwcecwe3amg6rkzgilcn4xqxmaiezoedijf6rtid.onion/register
-voltarox
-9veZ6kp6tGPR3ar
-
 http://alice34mdngm7dhzx34dglpactwrppd6cskewvi7ny2ktn7x7tf77qid.onion/
 http://okm5wpuh4hmuj4vcy7i72r7uumwwfmgeqjgy7b6qecv2aflaopqvfdad.onion/
 http://qmxem5wzk543ppqnyzxsmow2jggexesk2mnzphd5ecnsope4befch5yd.onion/
@@ -213,21 +207,10 @@ https://protonirockerxow.onion
 http://mail2tor2zyjdctd.onion/
 https://protonirockerxow.onion/login
 http://mail2tor2zyjdctd.onion
-voltarox@mail2tor.com
-volta-1234
-
 http://wc2eyfmw7wrwomf4.onion
-voltarox@wc2eyfmw7wrwomf4.onion
-voltarox@onionmail.info
-Wd:%z9Q0dU+NUj.J
 
 secure-email.org
-voltarox@secure-email.org
-TKxbjPn2iFreGzn
-
-http://scryptmaildniwm6.onion/
-voltarox@scryptmail.com
-puwKqbY5bW3VXQS
+http://scryptmaildniwm6.onion
 
 
 http://6nhmgdpnyoljh5uzr5kwlatx2u3diou4ldeommfxjz3wkhalzgjqxzqd.onion/
@@ -239,18 +222,11 @@ http://zqktlwiuavvvqqt4ybvgvi7tyo4hjl5xgfuvpdf6otjiycgwqbym2qad.onion/wiki/index
 http://ter5zlptmg6ljki2k22wjnwwxbgeajirr7af6jvtq2pdbfh5usmjdvqd.onion/
 
 http://torbox36ijlcevujx7mjb4oiusvwgvmue7jfn2cvutwa6kl6to3uyqad.onion/mbx/users/login.php
-http://nk3k2rsitogzvk2a.onion/
-
-password 
-
-W4STp.5d_H-X2rP        
-J4x4!5/4wtKz2h-    
-IHL)@W2*Ved5Yw22&6jG
-CN8X7CjfI_/q<fk+
-yeumcj65aUKnvUk
-Me*P5J?7?%c.nBp
+http://nk3k2rsitogzvk2a.onion
 http://wclekwrf2aclunlmuikf2bopusjfv66jlhwtgbiycy5nw524r6ngioid.onion/link/sochain/
 http://wclekwrf2aclunlmuikf2bopusjfv66jlhwtgbiycy5nw524r6ngioid.onion/link/blockchair/
+
+
 Western District
 http://v4t3ogtrdoe6ozkn.onion/
 
