@@ -116,8 +116,6 @@ http://jvrnuue4bvbftiby.onion/ – Data-Bay
 http://bgkitnugq5ef2cpi.onion/ – Hackintosh
  
 http://vlp4uw5ui22ljlg7.onion/ – EuroArms
-
- @exploithacker 
 EMPIRE MARKET MIRROR LINK
 http://vg43c6zaobirjlm3g25v7l7qw5huxuom2b5ksdh247fz3c2uv4gsnzad.onion/
 ELITE MARKET
@@ -152,66 +150,7 @@ http://radiocbsi2q27tob.onion/
 FindTor
 http://findtorroveq5wdnipkaojfpqulxnkhblymc7aramjzajcvpptd4rjqd.onion/
 
-http://alice34mdngm7dhzx34dglpactwrppd6cskewvi7ny2ktn7x7tf77qid.onion/
-http://okm5wpuh4hmuj4vcy7i72r7uumwwfmgeqjgy7b6qecv2aflaopqvfdad.onion/
-http://qmxem5wzk543ppqnyzxsmow2jggexesk2mnzphd5ecnsope4befch5yd.onion/
-http://polo55h2dwlngugap2ajahmjzt735oxyrniksxnfdcs5ellyekji5dad.onion/
-http://22tojepqmpah32fkeuurutki7o5bmb45uhmgzdg4l2tk34fkdafgt7id.onion/
-http://7j7kvbofntfxibmaq5roro2s4574fuomkjl66uiwyvroht2aritq27id.onion/
-http://answerszuvs3gg2l64e6hmnryudl5zgrmwm3vh65hzszdghblddvfiqd.onion/
-http://paste6kr6ttc5chv.onion/last.php
-http://5ws77qu3itw5ngmmguuinbtex3yohubv2vd66adwbzcpqw6bxknqqiqd.onion/
-https://slf2rrahypck3bwckpdohsnhpeqrb3nhvwznjmarmweofwnptowe4mad.onion.ly/
-http://drugsednqhasbyoyg2oekzbnllbujro54zrogqbf3p6e7qflxti5eeqd.onion/
-http://search7tdrcvri22rieiwgi5g46qnwsesvnubqav2xakhezv4hjzkkad.onion
-http://bxrjmjfbws5l73vf3nmtqxqbt4etwedtydjdgwpuj3clxhhjs7u5mzyd.onion/
-http://lolipornp7zsenhy3k3khowbdhyn4afshaj6axw7lakg5xgguezcinqd.onion/
-http://2okd3xv4nxsaturn.onion/
-http://ovgl57qc3a5abwqgdhdtssvmydr6f6mjz6ey23thwy63pmbxqmi45iid.onion/
-http://reycdxyc24gf7jrnwutzdn3smmweizedy7uojsa7ols6sflwu25ijoyd.onion/
-http://tape6m4x7swc7lwx2n2wtyccu4lt2qyahgwinx563gqfzeedn5nb4gid.onion/
-http://243vnzoix3ct6vowjgakv3pdqrzkfnkoz5plwgta3ar2onqobzhz5jid.onion/
-http://duq3tqhwuvghxskmq4g4y4bvn342ow76whgolrbbwf65wh7a6nez7iqd.onion/
-http://qmxem5wzk543ppqnyzxsmow2jggexesk2mnzphd5ecnsope4befch5yd.onion/
-http://anoncatkratzg5xmvqtybghhp2ho5pwrhgixja64pt7t3ehvwtr5fzqd.onion/signin
-
-https://deepwebsiteslinks.com/
-https://darkweblinks.com/
-https://thehiddenwiki.com/
-
-http://worldgyonnnlgg332jwgjxvj2dojerz2hh65ce44h56howcfmpehupad.onion/login
-http://f3dxwzcmojrlphehqwcecwe3amg6rkzgilcn4xqxmaiezoedijf6rtid.onion/register
-http://alice34mdngm7dhzx34dglpactwrppd6cskewvi7ny2ktn7x7tf77qid.onion/
-http://okm5wpuh4hmuj4vcy7i72r7uumwwfmgeqjgy7b6qecv2aflaopqvfdad.onion/
-http://qmxem5wzk543ppqnyzxsmow2jggexesk2mnzphd5ecnsope4befch5yd.onion/
-http://polo55h2dwlngugap2ajahmjzt735oxyrniksxnfdcs5ellyekji5dad.onion/
-http://22tojepqmpah32fkeuurutki7o5bmb45uhmgzdg4l2tk34fkdafgt7id.onion/
-http://7j7kvbofntfxibmaq5roro2s4574fuomkjl66uiwyvroht2aritq27id.onion/
-http://answerszuvs3gg2l64e6hmnryudl5zgrmwm3vh65hzszdghblddvfiqd.onion/
-http://paste6kr6ttc5chv.onion/last.php
-http://5ws77qu3itw5ngmmguuinbtex3yohubv2vd66adwbzcpqw6bxknqqiqd.onion/
-https://slf2rrahypck3bwckpdohsnhpeqrb3nhvwznjmarmweofwnptowe4mad.onion.ly/
-http://drugsednqhasbyoyg2oekzbnllbujro54zrogqbf3p6e7qflxti5eeqd.onion/
-http://search7tdrcvri22rieiwgi5g46qnwsesvnubqav2xakhezv4hjzkkad.onion
-
-http://bxrjmjfbws5l73vf3nmtqxqbt4etwedtydjdgwpuj3clxhhjs7u5mzyd.onion/
-http://lolipornp7zsenhy3k3khowbdhyn4afshaj6axw7lakg5xgguezcinqd.onion/
-http://2okd3xv4nxsaturn.onion/
-http://ovgl57qc3a5abwqgdhdtssvmydr6f6mjz6ey23thwy63pmbxqmi45iid.onion/
-http://reycdxyc24gf7jrnwutzdn3smmweizedy7uojsa7ols6sflwu25ijoyd.onion/
-http://tape6m4x7swc7lwx2n2wtyccu4lt2qyahgwinx563gqfzeedn5nb4gid.onion/
-
-http://okm5wpuh4hmuj4vcy7i72r7uumwwfmgeqjgy7b6qecv2aflaopqvfdad.onion/
-http://qmxem5wzk543ppqnyzxsmow2jggexesk2mnzphd5ecnsope4befch5yd.onion
-https://protonirockerxow.onion
-http://mail2tor2zyjdctd.onion/
-https://protonirockerxow.onion/login
-http://mail2tor2zyjdctd.onion
-http://wc2eyfmw7wrwomf4.onion
-
-secure-email.org
-http://scryptmaildniwm6.onion
-
+http://worldgyonnnlgg332jwgjxvj2dojerz2hh65ce44h56howcfmpehupad.onion/
 
 http://6nhmgdpnyoljh5uzr5kwlatx2u3diou4ldeommfxjz3wkhalzgjqxzqd.onion/
 
